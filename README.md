@@ -1,1 +1,0 @@
-# Graduate_work_intellectual_capital
